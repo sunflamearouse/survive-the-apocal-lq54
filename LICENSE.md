@@ -1,4 +1,4 @@
-
+anime card clash updated Script is the best anime card clash Script, featuring infinite resources and no clip. Safe and powerful for all your needs.
 
 
 
